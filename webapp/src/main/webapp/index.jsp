@@ -1,4 +1,4 @@
-Pasunkili
+Pasunkili - You need join in CTS
 
 Nagabasker Th**Paya
 
